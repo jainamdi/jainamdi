@@ -10,5 +10,6 @@ I'm a software developer engineer and computer science graduate student who is p
 
 
 ### Find me around the web :earth_americas: 
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------
+Sharing updates on : [LinkedIn]([https://www.linkedin.com/in/handsomejd/](url))
 
-Sharing updates on : 
